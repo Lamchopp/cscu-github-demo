@@ -12,17 +12,17 @@ Horse tack is attached
 Hat is matte black
 Got the boots that's black to match
 Riding on a horse, ha
-You can whip ur Porsche
+You can whip your Porsche
 I been in the valley
-You ain't been up of the porch, now
+You ain't been up off the porch, now
 
 ## Single Ladies - Beyonce
 
-Now put ur hands up
-Up in the club, we just bro up
-I'm dying my own litle thing
+Now put your hands up
+Up in the club, we just broke up
+I'm doing my own little thing
 Decided to dip and now you wanna trip
-Cause another brther noticed me
+Cause another brother noticed me
 
 ## Hello - Adele
 
