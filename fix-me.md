@@ -27,6 +27,6 @@ Cause another brother noticed me
 ## Hello - Adele
 
 Hello, can you hear me?
-I'm in Calfonia dreaming about who we used to be
+I'm in Calfornia dreaming about who we used to be
 When we were younger and free
 I've forgotten how it felt before the world fell at our feet
