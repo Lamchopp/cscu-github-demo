@@ -1,9 +1,9 @@
 ## Twinkle Twinkle Little Star
 
-Twinkl, tikle, litle star,
-How I wnder what you are!
-Up abve the wrld so hgh,
-Lke a dimond in te sky.
+Twinkle, twinkle, little star,
+How I wonder what you are!
+Up above the world so high,
+Like a diamond in the sky.
 
 ## Old Town Road - Lil Nas X
 
