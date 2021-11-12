@@ -1,6 +1,6 @@
 ## Twinkle Twinkle Little Star
 
-Twinkle, twinkle, little star
+Twinkle, twinkle, little star,
 How I wonder what you are!
 Up above the world so high,
 Like a diamond in the sky.
@@ -27,6 +27,6 @@ Cause another brother noticed me
 ## Hello - Adele
 
 Hello, can you hear me?
-I'm in California dreaming about who we used to be
+I'm in Calfonia dreaming about who we used to be
 When we were younger and free
 I've forgotten how it felt before the world fell at our feet
